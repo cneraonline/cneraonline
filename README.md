@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cneraonline
-- 🤠 I'm a Computer Science student at LSUA
+- 🤠 I'm a CS student at LSUA
 - 📫 Reach me at cnera@proton.me
 
 
