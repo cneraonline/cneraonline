@@ -1,4 +1,4 @@
-🤠 Hi, I'm Monae, a CS student at LSUA. 
+i'm monae.
 
 
 
